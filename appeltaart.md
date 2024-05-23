@@ -1,10 +1,10 @@
 ## Ingredienten
 
-1kg appels
-1kg boter
-1kg suiker
-1kg meel
+1kg apples
+1kg butter
+1kg sugar
+1kg flour
 
 ## Instructies
 
-Mix en bak!
+Mix and bake!
