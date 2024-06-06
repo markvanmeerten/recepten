@@ -7,4 +7,4 @@
 
 ## Instructies
 
-Mix and bake at 220 degrees Fahrenheit!
+Mix and bake at 250 degrees Fahrenheit!
